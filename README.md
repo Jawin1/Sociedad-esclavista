@@ -1,0 +1,2 @@
+# Sociedad-esclavista
+Sociedad esclavista
